@@ -1,4 +1,4 @@
 ### Diwa Ashwini Vittala
-Hello! My name is Diwa and I am current a student at UC Santa Cruz persuing a degree in Technology and Information Management (major) as well as Computer Science (minor).    
+Hello! My name is Diwa and I've graduated from UC Santa Cruz with a B.S. in Technology and Information Management and a minor in Computer Science.    
 
 You can reach me at diwa.av02@gmail.com 
